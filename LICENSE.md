@@ -1,4 +1,4 @@
-#  
+#  advanced Trello for macOS Extension | OCR scanning + database templates offers the most advanced Trello for macOS extension, with OCR scanning and database templates. Ideal for
 
 
 
